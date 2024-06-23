@@ -6,7 +6,7 @@
 </picture>
   </p>
   <p align="center">
-ANIMATIC <sup>OR</sup> no name :)
+<b>ANIMATIC</b> <sup>OR</sup> no name :)
   </p>
   <p align="center">
   <sup>will never tell you name!!! jsut know it </sup>
@@ -15,13 +15,13 @@ ANIMATIC <sup>OR</sup> no name :)
     <img src="https://files.catbox.moe/p3xhxh.gif"/>
     </p> 
       <p align="center">
-        sapphillean polyam agender :D taken by my lovely bf ‹𝟹
+        sapphillean polyam agender :D <b>taken by my lovely bf</b> ‹𝟹
          </p>
          <p align="center">
     MOST LIKELY AT OSC AREA!!! or clover hunting...
         </p> 
           <p align="center">
-    <sup>if you are friendly, interact! or i will do it first ◞</sup>
+    <sup>if you are friendly, interact! or <i>i will do it first</i> ◞</sup>
     </p> 
      <p align="center">
     <img src="https://64.media.tumblr.com/3aabfe556b3a186fb74ad7effd1af10d/de34f28c78a8987c-d6/s100x200/2c07ea45f7d113f7f67d077e68c9f33d75637648.pnj"/>
