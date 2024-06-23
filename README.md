@@ -31,4 +31,11 @@ DNI IF YOURE REALLY MEAN TO PEOPLE FOR NO REASON!!! ick?
       </p> 
       <p align="center">
 also dni if you bash our ships :( makes me sad
+</p>
+<p align="center">
+<a href="https://www.tumblr.com/blog/residentmara"><img src="https://img.shields.io/badge/Tumblr-%2336465D.svg?&style=for-the-badge&logo=Tumblr&logoColor=white" alt="tumblr!!!"></a> <a href="https://x.com/residentmara"><img src="https://img.shields.io/badge/Twitter-1DA1F2?style=for-the-badge&logo=twitter&logoColor=white" alt="twitter!!"></a>
+</p>
+<p align="center">
+ <img src="https://komarev.com/ghpvc/?username=clubcrackers&style=plastic&color=b5334d&label=STALKERS" alt="view+counter"> 
 </p> 
+ 
