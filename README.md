@@ -15,7 +15,7 @@
     <img src="https://files.catbox.moe/p3xhxh.gif"/>
     </p> 
       <p align="center">
-        sapphillean polyam agender :D <b>taken by my lovely bf</b> ‹𝟹
+        sapphillean polyam agender :D <b>taken by my lovely partners</b> ‹𝟹
          </p>
          <p align="center">
     MOST LIKELY AT OSC AREA!!! or clover hunting...
